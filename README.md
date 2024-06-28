@@ -1,0 +1,4 @@
+- 👋 Hola, soy Lourdes! 
+- 👀 Me interesa el aprendizaje y la tecnología
+- 🌱 Actualmente estoy enfocada en encontrar mi primera experiencia laboral en el área de IT y obtener mi título universitario
+- 📫 Cómo contactarme: lourdesaye1612@gmail.com 
